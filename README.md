@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning to code to get more helpfull
 - 💞️ I’m looking to collaborate on everything crypto related, and learn from the best blockchain developers and become one of them
 - 📫 How to reach me, you reach me on discord: tomi6el#6162 , also on twitter @TomiShelby16
-- my goal is to became top developer and make daps and money 
+- my goal is to became top developer and make daps and money with my talent 
+- i sing in a group
 -  
 <!---
 tomas6elby/tomas6elby is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
